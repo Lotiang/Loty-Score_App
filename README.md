@@ -1,0 +1,1 @@
+# Loty-Score_App
